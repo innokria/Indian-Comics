@@ -1,5 +1,5 @@
 **AI Comics in Action**
-
+-----------------------------------
 **Nagraaj**
   **image**
 
@@ -15,7 +15,7 @@
 
 https://github.com/user-attachments/assets/e385673a-9f35-4000-aa8b-881ee15162a4
 
-
+-------------------------------
 **Parmanu**
 
 ![parmanu](https://github.com/user-attachments/assets/c9b1472e-4ba9-48d1-80b5-093e1aaea897)
@@ -25,6 +25,8 @@ https://github.com/user-attachments/assets/e385673a-9f35-4000-aa8b-881ee15162a4
 
 
 **outcome**
+
+
 https://github.com/user-attachments/assets/05472ee1-65b8-4037-9276-8a17d5560bfb
 
 
