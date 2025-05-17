@@ -40,3 +40,10 @@ https://github.com/user-attachments/assets/1eb33298-2bc5-441e-96e9-67daedd05855
 
 Dhruv drops from the shadows, Nagraaj emerges at the center with serpents swirling, and Parmanu descends in a radiant arc — the trio charges forward in unison, silhouetted against a glowing twilight skyline.
 
+
+-----------------------------
+
+![poster](https://github.com/user-attachments/assets/e633b33f-d2e0-4b46-b477-dae536633d79)
+
+
+
