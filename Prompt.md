@@ -26,3 +26,14 @@ https://github.com/user-attachments/assets/2ba37792-80a1-42f6-b429-15330c89b67a
 
 
 In a vividly rendered 3D comic-style cityscape where futuristic technology fuses seamlessly with ancient Indian architecture, Nagraaj (center) emerges in a swirl of radiant green energy, serpents winding around his bio-organic armor as his eyes glow with reptilian intensity. On the left, Dhruv descends mid-leap from a glowing digital billboard, landing in slow-motion with acrobatic precision, his dual batons pulsing with light, ready for action. From the right, Parmanu dives from a crackling atomic portal in the sky, his advanced suit glowing with golden atomic energy, releasing ripples of power through the air. The camera rotates in bullet-time as all three strike iconic superhero stances — serpents lashing, batons arcing, atomic flares bursting — each pose infused with dynamic energy. The moment freezes like a living comic panel, capturing this trinity of Indian superheroes in a dramatic, high-impact scene.
+
+
+
+
+
+https://github.com/user-attachments/assets/330f78ef-a306-47c6-ae69-d5c8424af80d
+
+
+
+Dhruv drops from the shadows, Nagraaj emerges at the center with serpents swirling, and Parmanu descends in a radiant arc — the trio charges forward in unison, silhouetted against a glowing twilight skyline.
+
