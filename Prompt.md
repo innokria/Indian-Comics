@@ -37,6 +37,10 @@ https://github.com/user-attachments/assets/1eb33298-2bc5-441e-96e9-67daedd05855
 
 
 
+## with music ##
+
+https://github.com/user-attachments/assets/07d2aa08-9c8f-4f9e-9891-218cee05fae1
+
 
 Dhruv drops from the shadows, Nagraaj emerges at the center with serpents swirling, and Parmanu descends in a radiant arc — the trio charges forward in unison, silhouetted against a glowing twilight skyline.
 
