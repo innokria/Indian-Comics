@@ -14,6 +14,13 @@ Nagraaj emerges from a misty jungle, his serpents hissing around him. Dhruva fli
 ![oneframe](https://github.com/user-attachments/assets/81ccd1d2-c1f3-4d5c-9155-d63b0f3e644d)
 
 
+
+https://github.com/user-attachments/assets/2ba37792-80a1-42f6-b429-15330c89b67a
+
+
+
+
+
 ![one](https://github.com/user-attachments/assets/9d5b8dc5-0a24-4941-b52c-6701192fe946)
 
 
